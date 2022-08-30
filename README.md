@@ -1,2 +1,2 @@
-# af-ico
+# Africa (Icon Pack)
 Africa (Icon Pack)
